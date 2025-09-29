@@ -1,4 +1,4 @@
-Guilherme Korus Daoud RM97826 E
+Guilherme Korus Daoud RM97826 
 
 
 Rafael Jun Miura RM98845 
